@@ -3,7 +3,7 @@
 <!--
 **sabugo-404predo/sabugo-404predo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-fui obrigado a colocae que
+fui obrigado a colocar que
 
 - 🔭 Estou atualmente trabalhando em NADA
 - 🌱 Estou atualmente aprendendo NADA 
