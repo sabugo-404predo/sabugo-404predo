@@ -9,5 +9,4 @@ fui obrigado a colocar que
 - 📫 Como falar comigo: NAO FALE
 - 😄 Pronomes: NENHUM
 - ⚡ Fato engraçado: NENHUM NAO QUERO SABER
--->
 ![](https://media1.tenor.com/m/sHQ-pT6yhg8AAAAC/spongebob-spongebob-meme.gif)
