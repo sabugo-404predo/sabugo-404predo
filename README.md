@@ -10,4 +10,4 @@ fui obrigado a colocar que
 - 😄 Pronomes: NENHUM
 - ⚡ Fato engraçado: NENHUM NAO QUERO SABER
 -->
-![](https://tenor.com/pt-BR/view/spongebob-spongebob-meme-spongebob-mafia-mafia-money-gif-12714856527416165903)
+![](https://media1.tenor.com/m/sHQ-pT6yhg8AAAAC/spongebob-spongebob-meme.gif)
